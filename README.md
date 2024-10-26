@@ -4,7 +4,7 @@
 <h3 align="center">A silly pink floofy folf with a big tail.</h3>
 
 - 💛🤍💜🖤 I'm Non-binary and my pronouns are They/Them. Please use gender neutral language when refering to me, thanks.
-- 📫 How to reach me: **daemon3789 (discord)**
+- 📫 How to reach me: **dont!**
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=zerodaydaemon&label=Profile%20views&color=0e75b6&style=flat" alt="zerodaydaemon" /> </p>
 
